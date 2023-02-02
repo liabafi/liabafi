@@ -7,4 +7,4 @@
 
 - 📫 How to reach me **lbatllefigueras@gmail.com**
 
-- ⚡ Fun fact **I love tea instead coffee.**
+- ⚡ Fun fact: **I love tea instead coffee.**
