@@ -5,6 +5,6 @@
 
 - 💬 Ask me about **anything.**
 
-- 📧 How to reach me **lbatllefigueras@gmail.com**
+- 📧 How to reach me: https://www.linkedin.com/in/liabatlle/*
 
 - ⚡ Fun fact: **I love tea 🍵 instead coffee ☕.**
